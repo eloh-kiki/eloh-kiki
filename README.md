@@ -1,2 +1,2 @@
-hello welcome to my profile!!!
-here's a free bread 🍞
+hello, welcome to my profile
+read my patreon yesyes
